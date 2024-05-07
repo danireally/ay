@@ -1,2 +1,2 @@
 /yyyaaaabaaaayybaaaaaaaaaab
-bbs
+bbss
